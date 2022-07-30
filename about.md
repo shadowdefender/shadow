@@ -2,4 +2,4 @@
 
 ## About
 
-- shadow<shadowdefendernet@qq.com>
+- shadowdefendernet@qq.com
