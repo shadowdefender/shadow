@@ -1,5 +1,0 @@
-
-
-## About
-
-- shadowdefendernet@qq.com
